@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Olgabystrova
+- 👋 Hi, I’m @Olgabystrova, product Designer & Manager.
 - 👀 I’m interested in finding interconnections.
 - 🌱 I’m currently learning to use GitHub.
 - 💞️ I’m looking to collaborate on impactful products.
